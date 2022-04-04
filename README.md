@@ -5,6 +5,8 @@
 ## 🌀Hurry up to get on the whitelist to get your first PLAZMA (PZM)🌀
 
 ### WEB - https://plazmaworld.com
+### TELEGRAM ANN GROUP - https://t.me/plazmacoin
+### TELEGRAM Official Community - https://t.me/PLAZMAWORLD
 ### TWITTER - https://twitter.com/WorldPlazma
 ### GITHUB - https://github.com/plazmadev/PLAZMA
 ### DISCORD - https://discord.com/channels/960360864404348979
